@@ -8,7 +8,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/azam-anwar-759a74213/](https://www.linkedin.com/in/azam-anwar-759a74213/)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
